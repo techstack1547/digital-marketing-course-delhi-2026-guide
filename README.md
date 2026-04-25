@@ -45,7 +45,7 @@ Final Thoughts
 Digital marketing is a skill-based career. With the right training and consistent practice, you can build a strong future.
 
 Start your journey here:  
-[digital marketing course in delhi](https://www.techstack.in/digital-marketing
+[digital marketing course in delhi](https://www.techstack.in/digital-marketing)
 
 
 
